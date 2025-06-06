@@ -12,3 +12,4 @@
 
 
 
+![](https://media.tenor.com/xwKvSU1YrKIAAAAM/smile.gif)   ![](https://media.tenor.com/M4hf23tX23QAAAAM/byuntear-coringa.gif)    ![](https://media.tenor.com/6tspb2b8WNIAAAAM/tim%C3%A3o-coring%C3%A3o.gif)
